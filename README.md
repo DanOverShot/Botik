@@ -1,2 +1,2 @@
 # Botik
-Botik budet memom
+Botik mem :)
